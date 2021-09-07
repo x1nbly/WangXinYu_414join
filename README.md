@@ -9,3 +9,8 @@
 ![chapter](https://user-images.githubusercontent.com/90256226/132344712-b9399ac4-e825-4fc1-9fd9-66bab32530fe.jpg)
 ![预览](https://user-images.githubusercontent.com/90256226/132344125-86f70eba-be69-4c87-bc1e-5f53fcfb72a8.jpg)
 尝试过多种类型的设计，上面两张图是最近的作品，目前还在进步当中
+
+剪辑目前只会剪映基础剪辑，还在学习中
+https://www.bilibili.com/video/BV1Sg411V7K8?from=search&seid=12399626173915041923&spm_id_from=333.337.0.0
+https://www.bilibili.com/video/BV1nb4y1z7Y1?spm_id_from=333.999.0.0
+第二个视频0-40s是我剪的部分。
