@@ -1,3 +1,4 @@
+![DSCF4889-编辑](https://user-images.githubusercontent.com/90256226/132342202-4c032dcb-80ee-4b5f-bec4-3541998f8f36.jpg)
 # WangXinYu_414join
 - 👋 Hi, 我是**20数技1班 王昕宇**
 - 👀 想加入414，和大家一起进步。
