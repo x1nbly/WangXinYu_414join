@@ -4,3 +4,8 @@
 - 👀 想加入414，和大家一起进步。
 - 🌱 比如3DMAX等建模软件；比如PS，AI，Pr等实用的adobe软件；比如Python，C语言等编程语言；
 - 💞️ 想了解现如今我们专业的发展趋势，并从中实践出适合自己的领域
+
+有帮忙用PS做过一些图片，
+![chapter](https://user-images.githubusercontent.com/90256226/132344712-b9399ac4-e825-4fc1-9fd9-66bab32530fe.jpg)
+![预览](https://user-images.githubusercontent.com/90256226/132344125-86f70eba-be69-4c87-bc1e-5f53fcfb72a8.jpg)
+尝试过多种类型的设计，上面两张图是最近的作品，目前还在进步当中
